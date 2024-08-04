@@ -2,7 +2,7 @@
 
 ![image](https://github.com/user-attachments/assets/353a052b-9434-4ef0-877d-ecef1cf4c3f5)
 
-Clara sempre foi uma estudante brilhante, conhecida por sua dedicação e habilidades acadêmicas excepcionais. No entanto, por trás das notas perfeitas e do sorriso confiante, ela lutava contra uma profunda atychiphobia. O medo de falhar dominava sua vida. Ela se lembrava de uma única vez em que errou uma questão em um teste de matemática na escola e como se sentira devastada. Desde então, qualquer desafio, por menor que fosse, era um obstáculo quase insuperável.
+Clara sempre foi uma estudante brilhante, conhecida por sua dedicação e habilidades acadêmicas excepcionais. No entanto, por trás das notas perfeitas e do sorriso confiante, ela carregava um medo debilitante conhecido como atychiphobia—um medo intenso e paralisante de falhar. Esse medo não era apenas uma preocupação ocasional; era uma força dominante em sua vida, afetando suas decisões e ações. Para Clara, qualquer desafio, por menor que fosse, se transformava em um obstáculo assustador, levando-a a evitar situações onde pudesse cometer erros e enfrentar críticas.
 
 Quando Clara decidiu seguir uma carreira em design gráfico, seu medo de falhar começou a intensificar-se. Ela se inscreveu em um prestigiado programa de design na universidade, mas seu medo do fracasso era tão paralisante que ela evitava qualquer situação que pudesse resultar em uma crítica ou em um possível erro. Seus projetos eram impecáveis, mas ela se sentia constantemente estagnada, nunca ousando experimentar algo novo por medo de não atender às suas próprias expectativas.
 
