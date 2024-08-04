@@ -8,8 +8,8 @@ A história de Clara ilustra como enfrentar o medo de falhar pode levar a um cre
 * Bing (Criador de Imagens).
 
 ## 🧐 Processo de Criação
-* Utilizei o ChatGPT para listar os medos mais populares, escolhi atychiphobia como tema para a trama.
-* Utilizei o ChatGPT para criar uma história de superação em que a protagonista sofre de atychiphobia.
+* Utilizei o ChatGPT para listar os medos mais populares, escolhi atiquifobia (o medo de falhar) como tema para a trama.
+* Utilizei o ChatGPT para criar uma história de superação em que a protagonista sofre de atiquifobia.
 * Utilizei o Bing para criar uma representação visual da protagonista.
 
 ## 🚀 Resultados
