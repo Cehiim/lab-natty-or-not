@@ -13,7 +13,7 @@ A história de Clara ilustra como enfrentar o medo de falhar pode levar a um cre
 * Utilizei o Bing para criar uma representação visual da protagonista.
 
 ## 🚀 Resultados
-
+[Acesse a história aqui](https://github.com/Cehiim/lab-natty-or-not/blob/main/conto.md)
 
 ## 💭 Reflexão (Opcional)
 * A Inteligência Artificial Generativa é uma ferramenta poderosa e versátil que pode não apenas pode auxiliar em desafios técnicos, mas também pode contribuir para enfrentar barreiras criativas.
